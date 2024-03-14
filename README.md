@@ -1,6 +1,6 @@
 - 👋 I’m @ichbinrithel
 - 👀 I’m interested in pretty much everything lol
-- 😄 Pronouns: she/her but I'm okay with everything else too
+- 😄 Pronouns: she/her but I'm okay whatever pronoun.
 - ⚡ Fun fact: how abt I'M fun lol
 
 <!---
